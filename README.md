@@ -58,3 +58,11 @@ perdiendo plata, después se decide qué automatizar.
 
 Segundo año de **Licenciatura en Desarrollo y Gestión de Software**
 Universidad Tecnológica de Panamá — Centro Regional de Chiriquí
+
+---
+
+## Contacto
+
+¿Tu negocio se lleva en un Excel que ya nadie entiende? Escríbeme.
+
+**jalid26diaz@gmail.com**
